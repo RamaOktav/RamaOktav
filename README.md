@@ -2,8 +2,8 @@
 - 👀 I’m interested in studying programing
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on my study
-- 📫 How to reach me by DM me on insta @luckycat_404
-- 😄 Pronouns: dia/ Tank-Boat Antasena Class with 55mm mounted turret
+- 📫 You can reach me by DM me on insta @luckycat_404
+- 😄 Pronouns: dia / Tank-Boat Antasena Class with 55mm mounted turret
 - ⚡ Fun fact: im not fun
 
 <!---
